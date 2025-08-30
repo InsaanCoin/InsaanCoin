@@ -33,13 +33,17 @@ INSAAN Coin represents a vision of building a sustainable, community-powered cry
 - **Phase 1:** Website launch, community building, initial coin offering  
 - **Phase 2:** Exchange listings, marketing campaigns  
 - **Phase 3:** Ecosystem growth, partnerships, utility expansion  
-
+- 
 ---
 
 ## 📢 Join the Community
-- 🌐 [Website](https://insaan.live)  
+- 🌐 Website :(https://insaan.live)  
+- 💬 WhatsApp : https://whatsapp.com/channel/0029Vb6edfzKbYMK0uVwNy2r
+- 📱 Discord : https://discord.gg/5z7nnFfg
 - 📱 Telegram: [Coming Soon]  
-- 🐦 Twitter: [Coming Soon]  
+- ️▶️ Youtube : http://www.youtube.com/@InsaanCoin
+- 📥 Reddit : https://www.reddit.com/u/insaancoin/s/abC89w85Js
+- 🐦 Twitter/X: https://x.com/Insaancoin  
 - 📸 Instagram (https://www.instagram.com/insaancoin?igsh=MXd3dnk3eW9ueHgzbA%3D%3D&utm_source=qr)]  
 
 > **Disclaimer:** INSAAN Coin is a community project. Cryptocurrency investments are subject to market risks — please do your own research.
